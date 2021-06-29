@@ -7,4 +7,4 @@
 - 📫 How to reach me ... Hmm ... u can find me at: https://www.facebook.com/nghien.19xx/
 
 #Lisa_BlackPink_Fanboy
-![alt text](https://scontent.fhan2-2.fna.fbcdn.net/v/t1.6435-9/149123381_2803451623208752_428030427863639639_n.jpg?_nc_cat=102&ccb=1-3&_nc_sid=8bfeb9&_nc_ohc=9vkossuIaEIAX8GfDCi&tn=LNTPiWYHCO-eoHtt&_nc_ht=scontent.fhan2-2.fna&oh=d342ea757ef503b0501ef2045d753fd4&oe=60D486B2)
+![alt text](https://i.imgur.com/hThlH3t.jpg)
